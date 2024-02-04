@@ -12,7 +12,7 @@
 
 ## 极速VIP优惠码
 
-最新优惠码：最新地址2：[79vip](https://jisuvip.com/auth/register?code=SmHn)
+最新优惠码：[79vip](https://jisuvip.com/auth/register?code=SmHn)
 
 如果您现在已有套餐，可以到首页点升级套餐在使用优惠码购买。
 
