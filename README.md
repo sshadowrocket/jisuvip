@@ -1,6 +1,8 @@
 # 极速VIP机场官网地址
 
-最新地址：[jisuvip.xyz](https://jisuvip.xyz/auth/register?code=SmHn)
+最新地址：[jisuvip.com](https://jisuvip.com/auth/register?code=SmHn)
+
+最新地址2：[jisuvip.cc](https://jisuvip.cc/auth/register?code=SmHn)
 
 ## 极速VIP介绍
 
@@ -10,7 +12,7 @@
 
 ## 极速VIP优惠码
 
-最新优惠码：S90
+最新优惠码：最新地址2：[79vip](https://jisuvip.com/auth/register?code=SmHn)
 
 如果您现在已有套餐，可以到首页点升级套餐在使用优惠码购买。
 
